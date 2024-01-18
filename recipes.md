@@ -115,3 +115,20 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Mini Blueberry Tarts
+
+Ingredients:
+- 2 cups fresh blueberries
+- 1/3 cup sugar
+- 4 tsp cornstarch
+- 2 sheets refrigerated pie crust
+- 1 large egg yolk, lightly beaten
+
+Instructions:
+1. Preheat oven to 425°. 
+2. Crush half the blueberries. Sift together sugar and cornstarch. Add whole and crushed blueberries; toss until berries are well coated. Set aside.
+3. On a lightly floured surface, unroll crusts. Cut out six 4-1/2-in. circles; press circles onto bottoms and up sides of greased muffin cups. 
+4. Evenly spoon in blueberry mixture. Cut out six 2-in. circles from remaining crust; place over filling. Brush with yolk.
+5. Bake until crust is golden and filling bubbles, 13-17 minutes. Cool in pans 10 minutes; run a knife around sides of muffin cups and remove tarts to a serving plate.
+
